@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kkkbruno
-- 👀 I’m interested in gf
-- 🌱 I’m currently learning fish ball cat
-- 💞️ I’m looking to collaborate on Pornhub
+- 👀 I’m interested in
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on
 - 📫 How to reach me in the rainbown
 
 <!---
